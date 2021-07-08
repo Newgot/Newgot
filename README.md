@@ -1,1 +1,1 @@
-![Baner](https://www.seekpng.com/png/detail/61-614544_also-the-yuno-picture-that-i-made-transparent.png)
+![Baner](https://i.pinimg.com/originals/59/2f/13/592f134442b0b717fe0838922a56d471.jpg)
